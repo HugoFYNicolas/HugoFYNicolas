@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @HugoFYNicolas
+- 👀 I’m interested in web3, cyber, ML/AI, infra & fintech
+- 📫 Feel free to reach at https://twitter.com/Hfy_N_
