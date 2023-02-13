@@ -1,3 +1,3 @@
-- 👋 Hi, I’m @HugoFYNicolas
+- 👋 Hi, I’m Hugo NICOLAS, Associate at Axeleo Capital (https://axc.vc)
 - 👀 I’m interested in web3, cyber, ML/AI, infra & fintech
-- 📫 Feel free to reach at https://twitter.com/Hfy_N_
+- 📫 Feel free to reach here https://twitter.com/Hfy_N_ or here https://www.linkedin.com/in/hugonicolas/
